@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @tauhido TechyGuy 
+- 👋 Hi, I’m @tauhido
 - 👀 I’m interested in ... gaming, designing and modding software
 - 🌱 I’m currently learning ... graphic designing
-- 💞️ I’m looking to collaborate on ... anyone who just like me techy lovers (●'◡'●)
+- 💞️ I’m looking to collaborate on ... anyone who just like me modifys (●'◡'●)
 - 📫 How to reach me ... mail me : tauhid.official@gmail.com
 
 <!---
